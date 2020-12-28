@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Hi there!
 
-I'm glad you are here! :smiley_cat:
+I'm glad you are here! :)
